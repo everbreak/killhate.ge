@@ -1,1 +1,1 @@
-# killhate.ge
+# killhate
